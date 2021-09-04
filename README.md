@@ -1,2 +1,0 @@
-# AniWall
-Anime Wallpapers
